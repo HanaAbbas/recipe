@@ -6,4 +6,4 @@ Add half can of diced tomatos
 Bring to boil then lower heat
 Add the vegetables you want (onions, jalapenos, mushrooms, peppers, okra)
 Simmer for 15 - 60 minutes 
-Add more spice if needed
+Add hot honey sauce for a sweet kick
