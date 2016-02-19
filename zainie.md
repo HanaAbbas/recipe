@@ -1,6 +1,6 @@
 # Best sandwich ever
 Turkey
-Cheese
+Cheese - herbed gouda preferred
 Bread
 Avocado
 Mustard
