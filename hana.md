@@ -7,3 +7,5 @@ Bring to boil then lower heat
 Add the vegetables you want (onions, jalapenos, mushrooms, peppers, okra)
 Simmer for 15 - 60 minutes 
 Add hot honey sauce for a sweet kick
+
+Add shredded cheese (preferrably cheddar but mexican mix can also be used)
